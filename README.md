@@ -1,4 +1,4 @@
-AOC.. please dig a hole and die in it. Thanks.
+Elon Musk is a totalitarian dipshit.
 
 <!---
 p4lindr0me/p4lindr0me is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
